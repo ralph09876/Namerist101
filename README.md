@@ -1,9 +1,3 @@
-carl linmuel beltran
-
-# Namerist101
-
+# vince
 # christian
-
-# Namerist101
-
 # carl
